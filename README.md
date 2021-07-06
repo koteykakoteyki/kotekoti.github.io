@@ -1,2 +1,1 @@
-# kotekoti.github.io
-aboba
+Ты лох!
